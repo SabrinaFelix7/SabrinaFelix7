@@ -1,16 +1,19 @@
-### Hi there 👋
+### Bem vindos ao meu perfil 💗
 
-<!--
-**SabrinaFelix7/SabrinaFelix7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+💮Meu nome é **Sabrina Felix** 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+-Gosto de ler,desenhar,cantar,escrever,etc.
+
+-Estou estudando no Alura
+
+
+🦋**Se quiser pode entrar em contato comigo**
+
+00001114082375sp@al.educacao.sp.gov.br
+
+@sabrina._.felix
+
+
+  ![](https://media.tenor.com/ftqs42Yna-oAAAAi/mochi-mochi-hello-white-mochi-mochi.gif)
+
